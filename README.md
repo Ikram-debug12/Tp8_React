@@ -5,3 +5,4 @@
 
 ## Exercices facultatifs
 
+https://github.com/user-attachments/assets/ae764ad3-9e97-44d2-8ac1-89cea7912114
